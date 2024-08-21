@@ -6,6 +6,6 @@
      Instagram & Snapchat :- @imarifatsultan
 
 - 😄 Pronouns: Just call my Name
-- ⚡ Fun fact: I don't really love to coding ⌨️
+- ⚡ Fun fact: I don't really love coding ⌨️
 
    © All rights reserved by Marifat Sultan 
